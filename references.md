@@ -1,1 +1,2 @@
-Daniel is hte best
+
+Daniel is the best
